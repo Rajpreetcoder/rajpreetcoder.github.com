@@ -27,3 +27,14 @@ He give the **tips**
 1. Always put your **100%** in the work.
 2. Listen to your **Heart**.
  
+**3** **Mr.Pancham**
+
+He is our senior, In his session he talk about body language like about different face expression, legs movement and also who define the character of human being by just looking. Moreover, he talks about his experience. 
+
+_**Day4**_
+
+On the day **4** all the students of **ITDepartment** have visit to their department. In which we see different labs, interact with our **Respected Professor** who guide us and motivate us. 
+
+_**Day5**_
+
+On the day fifth I have my two lecture one is of **UHV** and another is a **Peer interaction** with our senior who taught about **chat gpt** and **MS Excel** .But  the surprise waiting for us for all freshers that their will our **Surprising English test**.
