@@ -1,5 +1,6 @@
 # rajpreetcoder.github.io
 
+
 "Hello Everyone"
 
 I am _**Rajpreet kaur**_ basically from Doraha. I did my schooling from _**Guru Nanak Model Sen. sec. school, Doraha**_
@@ -38,3 +39,15 @@ On the day **4** all the students of **ITDepartment** have visit to their depart
 _**Day5**_
 
 On the day fifth I have my two lecture one is of **UHV** and another is a **Peer interaction** with our senior who taught about **chat gpt** and **MS Excel** .But  the surprise waiting for us for all freshers that their will our **Surprising English test**.
+
+_**Day6**_
+On our  Day 6
+I have auditorium section . 
+ # 1. First Speaker of the Day is Mr. Harpal Singh Pannu
+ He is very inspiring person in found so. He is a full of knowledge embedded inside him. He is such from gem I ever seen. 
+ His life story inspire him alot. 
+ 
+
+
+
+
