@@ -53,5 +53,6 @@ I have auditorium section .
 
 #### 4. After that we have interaction with ** Coordinator NSS Dr. Jasvir Singh Grewal** who tell us about how the Nss work and how Nss candidate contribute to nature and human life. 
 
+# _**Day6**_
 
-
+### 1. 
