@@ -71,4 +71,9 @@ I have auditorium section .
 
 #### We all have wonderful interaction with **Dr.Sangeeta** . She try us to interact  with **Dr.Prakash** through the video call who explain us about the Architecture world. 
 
-### 2.  After the Our senior tells us about the **Causmic club** the achievement of the clubs and tells us how each and every member play a crucial role in Causmic club. 
+### 2.  After the Our senior tells us about the **Causmic club** the achievement of the clubs and tells us how each and every member play a crucial role in Causmic club.
+
+# _**Day 8 **_ 
+
+### 1. We have our **Canva class** conducted by the senior. 
+### 2. After that we have **Maths** class. 
