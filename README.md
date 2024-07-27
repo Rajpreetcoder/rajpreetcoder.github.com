@@ -58,3 +58,9 @@ I have auditorium section .
 ### 1. Er. Kanwardeep kalra
 
 #### she share her knowledge with us about the interviewer and intervie in a very wonderful matters. she taught how we to behave and show our best in front of boss and be honest with the work and always keep smiling 😊. 
+
+### 2. IAPT - Incharge Jaswinder Singh 
+
+#### He is wonderful personality I ever seen he plays with no. on stage and science prove law that say ** Nuclear energy is grater than Gravitational energy** He enjoy what he is doing that inspire me alot
+
+### 3. Then After we have class of English in which we perform an activity. 
