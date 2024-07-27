@@ -55,4 +55,6 @@ I have auditorium section .
 
 # _**Day6**_
 
-### 1. 
+### 1. Er. Kanwardeep kalra
+
+#### she share her knowledge with us about the interviewer and intervie in a very wonderful matters. she taught how we to behave and show our best in front of boss and be honest with the work and always keep smiling 😊. 
