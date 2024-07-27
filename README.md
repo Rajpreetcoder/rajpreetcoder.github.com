@@ -88,3 +88,7 @@ I have auditorium section .
 
 ### 2. Er. Lakhveer Singh 
 ### 3. Causmic club
+
+# _**Day10**_
+
+### We have our Maths test at afternoon before that we have two classes of maths. 
