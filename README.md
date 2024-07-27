@@ -41,12 +41,12 @@
 #### On our  Day 6
 ##### I have auditorium section . 
  ### 1. First Speaker of the Day is Mr. Harpal Singh Pannu
-#### He is very inspiring person in found so. He is a full of knowledge embedded inside him. He is such from gem I ever seen. 
+#### He is very inspiring person i found. He is a full of knowledge embedded inside him. He is such from gem I ever seen. 
 #### His life story inspire him alot. 
  
 ### 2. After  interaction with the speaker then I have **UHV** class. 
 
-### 3. After break we have interaction with **ANO NCC _Dr. Harwinder Singh** who tells us about the life of Ncc and motivate us 
+### 3. After break we have interaction with **ANO NCC Dr.Harwinder Singh** who tells us about the life of Ncc and motivate us 
 
 #### 4. After that we have interaction with ** Coordinator NSS Dr. Jasvir Singh Grewal** who tell us about how the Nss work and how Nss candidate contribute to nature and human life. 
 
