@@ -93,10 +93,10 @@
 # _**Day 11 and the End Of induction Program**_
 
 ### Speaker of the Day is **Dr.kanwalpreet kaur Bhatt**
-#### She is hemopathic practicing and a meditators also she taught our the causmic energy and then all perform 15 min meditation section after that we feel calm and relax. It's is excellent way to calm our mind she taught us. 
+#### She is hemopathic practicing and a meditators also she taught us aboutthe causmic energy and then we all perform 15 min meditation section after that we feel calm and relax. It's is excellent way to calm our mind she taught us. 
 
 ### After That we have Validactiry section 
-#### In the Validatory section we enjoy singing performs, dance performs and also mimicking performs by our senior. 
+#### In the Validatory section we enjoy singing performs, dance performs and also mimicking perform by our senior. 
 
 # At the I would like to say this induction program is to good. 
 # I have learnt alot during this program. 
