@@ -1,6 +1,6 @@
 # "Hello Everyone"
 
-#### I am _**Rajpreet kaur**_ basically from Doraha. I did my schooling from _**Guru Nanak Model Sen. sec. school, Doraha**_
+#### I am _**Rajpreet kaur**_ . I did my schooling from _**Guru Nanak Model Sen. sec. school, Doraha**_
 
 #### I have very keen interest to learn coding but till now I did nothing in coding. 
 
@@ -10,7 +10,7 @@
 
 # _**Day 2**_
 
-#### On the second day of my induction program  I had my two classes oone is UHV and second is peer intersaction with our senior. 
+#### On the second day of my induction program  I had my two classes oone is UHV and second is peer interaction with our senior. 
 
 # _**Day 3**_
 
@@ -27,7 +27,7 @@
  
 ####  **3** **Mr.Pancham**
 
-### He is our senior, In his session he talk about body language like about different face expression, legs movement and also who define the character of human being by just looking. Moreover, he talks about his experience. 
+##### He is our senior, In his session he talk about body language like about different face expression, legs movement and also who define the character of human being by just looking. Moreover, he talks about his experience. 
 
 # _**Day4**_
 
@@ -39,10 +39,10 @@
 
 # _**Day6**_
 #### On our  Day 6
-I have auditorium section . 
+#####I have auditorium section . 
  ### 1. First Speaker of the Day is Mr. Harpal Singh Pannu
- He is very inspiring person in found so. He is a full of knowledge embedded inside him. He is such from gem I ever seen. 
- His life story inspire him alot. 
+#### He is very inspiring person in found so. He is a full of knowledge embedded inside him. He is such from gem I ever seen. 
+#### His life story inspire him alot. 
  
 ### 2. After  interaction with the speaker then I have **UHV** class. 
 
