@@ -1,4 +1,4 @@
-# rajpreetcoder.github.io
+wr# rajpreetcoder.github.io
 
 
 "Hello Everyone"
@@ -49,7 +49,7 @@ I have auditorium section .
  
 # 2. After  interaction with the speaker then I have **UHV** class. 
 
-# 3. After break we have interaction with Ncc 
+# 3. After break we have interaction with **ANO NCC _Dr. Harwinder Singh** who tells us about the life of Ncc and motivate us 
 
 
 
