@@ -58,7 +58,7 @@
 
 ### 2. IAPT - Incharge Jaswinder Singh 
 
-#### He is wonderful personality I ever seen he plays with no. on stage and science prove law that say **Nuclear energy is grater than Gravitational energy** He enjoy what he is doing that inspire me alot
+#### He is wonderful personality I ever seen he plays with no. on stage and prove law that say **_Nuclear energy is grater than Gravitational energy_** with just balloon and bit of papers.He enjoy what he is doing that inspire me alot
 
 ### 3. Then After we have class of English in which we perform an activity. 
 
