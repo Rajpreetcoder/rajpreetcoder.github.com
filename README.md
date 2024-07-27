@@ -31,7 +31,7 @@
 
 # _**Day4**_
 
-### On the day **4** all the students of **ITDepartment** have visit to their department. In which we see different labs, interact with our **Respected Professor** who guide us and motivate us. 
+### On the day **4** all the students of **IT Department** have visit to their department. In which we see different labs, interact with our **Respected Professor** who guide us and motivate us. 
 
 # _**Day5**_
 
@@ -48,7 +48,7 @@
 
 ### 3. After break we have interaction with **ANO NCC Dr.Harwinder Singh** who tells us about the life of Ncc and motivate us 
 
-#### 4. After that we have interaction with ** Coordinator NSS Dr. Jasvir Singh Grewal** who tell us about how the Nss work and how Nss candidate contribute to nature and human life. 
+#### 4. After that we have interaction with **Coordinator NSS Dr. Jasvir Singh Grewal** who tell us about how the Nss work and how Nss candidate contribute to nature and human life. 
 
 # _**Day6**_
 
