@@ -47,6 +47,9 @@ I have auditorium section .
  He is very inspiring person in found so. He is a full of knowledge embedded inside him. He is such from gem I ever seen. 
  His life story inspire him alot. 
  
+# 2. After  interaction with the speaker then I have **UHV** class. 
+
+# 3. After break we have interaction with Ncc 
 
 
 
