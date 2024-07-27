@@ -64,3 +64,11 @@ I have auditorium section .
 #### He is wonderful personality I ever seen he plays with no. on stage and science prove law that say ** Nuclear energy is grater than Gravitational energy** He enjoy what he is doing that inspire me alot
 
 ### 3. Then After we have class of English in which we perform an activity. 
+
+# _**Day7**_ 
+
+### 1. Dr. Sangeeta 
+
+#### We all have wonderful interaction with **Dr.Sangeeta** . She try us to interact  with **Dr.Prakash** through the video call who explain us about the Architecture world. 
+
+### 2.  After the Our senior tells us about the **Causmic club** the achievement of the clubs and tells us how each and every member play a crucial role in Causmic club. 
