@@ -39,7 +39,7 @@
 
 # _**Day6**_
 #### On our  Day 6
-#####I have auditorium section . 
+##### I have auditorium section . 
  ### 1. First Speaker of the Day is Mr. Harpal Singh Pannu
 #### He is very inspiring person in found so. He is a full of knowledge embedded inside him. He is such from gem I ever seen. 
 #### His life story inspire him alot. 
