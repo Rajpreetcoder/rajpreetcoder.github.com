@@ -1,7 +1,4 @@
-wr# rajpreetcoder.github.io
-
-
-"Hello Everyone"
+# "Hello Everyone"
 
 #### I am _**Rajpreet kaur**_ basically from Doraha. I did my schooling from _**Guru Nanak Model Sen. sec. school, Doraha**_
 
@@ -19,16 +16,16 @@ wr# rajpreetcoder.github.io
 
 #### On my third of my induction program I had to attend seminar in auditorium. There were 3 speakers there 
 
- **1** **Mr. Piyarelal Garg**
+####  **1** **Mr. Piyarelal Garg**
 
 #### Who is very experience and talked about his teaching . He guide us to having the attitude of learning and exploring new things. 
 
- **2** **Mr. Sony Goyal**
+####  **2** **Mr. Sony Goyal**
 #### He give the **tips** 
 ##### 1. Always put your **100%** in the work.
 ###### 2. Listen to your **Heart**.
  
- **3** **Mr.Pancham**
+####  **3** **Mr.Pancham**
 
 ### He is our senior, In his session he talk about body language like about different face expression, legs movement and also who define the character of human being by just looking. Moreover, he talks about his experience. 
 
