@@ -77,3 +77,14 @@ I have auditorium section .
 
 ### 1. We have our **Canva class** conducted by the senior. 
 ### 2. After that we have **Maths** class. 
+
+# _**Day 9**_
+### 1. **IOC  Gauravdeep Singh**
+
+#### He tells us about his journey from  **Zero to hero** . 
+##### His Mantra's are  following below
+###### 1.Always write
+###### 2.listen to our heart 
+
+### 2. Er. Lakhveer Singh 
+### 3. Causmic club
