@@ -98,6 +98,6 @@
 ### After That we have Validactiry section 
 #### In the Validatory section we enjoy singing performs, dance performs and also mimicking perform by our senior. 
 
-# At the I would like to say this induction program is to good. 
+# At the end, I would like to say this induction program is too good. 
 # I have learnt alot during this program. 
 
