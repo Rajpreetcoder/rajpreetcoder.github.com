@@ -50,9 +50,9 @@
 
 #### 4. After that we have interaction with **Coordinator NSS Dr. Jasvir Singh Grewal** who tell us about how the Nss work and how Nss candidate contribute to nature and human life. 
 
-# _**Day6**_
+# _**Day7**_
 
-### 1. Er. Kanwardeep kalra
+### 1. Er.kanwardeep kalra
 
 #### she share her knowledge with us about the interviewer and intervie in a very wonderful mannerrs. she taught how we to behave and show our best in front of boss and be honest with the work and always keep smiling 😊. 
 
@@ -62,7 +62,7 @@
 
 ### 3. Then After we have class of English in which we perform an activity. 
 
-# _**Day7**_ 
+# _**Day8**_ 
 
 ### 1. Dr. Sangeeta 
 
@@ -70,12 +70,12 @@
 
 ### 2.  After the Our senior tells us about the **Causmic club** the achievement of the clubs and tells us how each and every member play a crucial role in Causmic club.
 
-# _**Day 8**_ 
+# _**Day 9**_ 
 
 ### 1. We have our **Canva class** conducted by the senior. 
 ### 2. After that we have **Maths** class. 
 
-# _**Day 9**_
+# _**Day 10**_
 ### 1. **IOC  Gauravdeep Singh**
 
 #### He tells us about his journey from  **Zero to hero** . 
@@ -86,11 +86,11 @@
 ### 2. Er. Lakhveer Singh 
 ### 3. Causmic club
 
-# _**Day10**_
+# _**Day11**_
 
 ### We have our Maths test at afternoon before that we have two classes of maths. 
 
-# _**Day 11 and the End Of induction Program**_
+# _**Day 12 and the End Of induction Program**_
 
 ### Speaker of the Day is **Dr.kanwalpreet kaur Bhatt**
 #### She is hemopathic practicing and a meditators also she taught us aboutthe causmic energy and then we all perform 15 min meditation section after that we feel calm and relax. It's is excellent way to calm our mind she taught us. 
