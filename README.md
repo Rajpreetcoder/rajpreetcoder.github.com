@@ -70,7 +70,7 @@
 
 ### 2.  After the Our senior tells us about the **Causmic club** the achievement of the clubs and tells us how each and every member play a crucial role in Causmic club.
 
-# _**Day 8 **_ 
+# _**Day 8**_ 
 
 ### 1. We have our **Canva class** conducted by the senior. 
 ### 2. After that we have **Maths** class. 
